@@ -1,1 +1,1 @@
-# Eating-Chicken-without-flashing-soup-on-your-self-in-Adjumani
+# Eating-Chicken-without-flashing-soup-on-yourself-in-Adjumani
